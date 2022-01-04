@@ -1,4 +1,4 @@
-### Olá, eu sou o Hélter Pinheiro 👋
+### Olá, eu sou Hélter Pinheiro 👋
 
 - 🖥 Atualmente sou estudante de Ciência da Computação da UFMA.
 - 🌱 Filiado ao laboratório LAWS/Telemídia-MA
